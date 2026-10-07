@@ -4,6 +4,8 @@ One pick for each of 10 jobs, from the AI Mentorship for World Travelers episode
 
 **[Download the presentation (PDF)](the-only-ai-tools-you-need-2026.pdf)**
 
+Watch the episode (live from October 8, 2026): https://youtu.be/QhuS-RXC9KM
+
 ![The cheat sheet](cheat-sheet.png)
 
 ## The cheat sheet
